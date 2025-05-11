@@ -32,3 +32,5 @@
 ### Author
 
 🔸 𝘔𝘢𝘥𝘦 𝘣𝘺 𝘕𝘢𝘪𝘬𝘰 🔸
+
+![Naiko](https://github.com/user-attachments/assets/02a8fbca-6bdd-43c1-98a5-1eebcd0936e4)
